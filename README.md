@@ -1,4 +1,4 @@
-## Hi there 👋 ![my photo](https://x.com/i/status/2040487538238824671)
+
 
 <!--
 **Le0nK3nnedy/Le0nK3nnedy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
