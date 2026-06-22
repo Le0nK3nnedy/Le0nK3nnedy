@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=FFFFFF" />
+  <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=3D4A72" />
 </p>
 
 ![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image25.png?v=637dc379)
