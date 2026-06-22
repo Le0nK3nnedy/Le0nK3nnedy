@@ -2,7 +2,9 @@
 <p align="center">
   𓉸ྀི
 </p>
+
 ![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image30.jpg?v=088053ea)
+
 ![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image29.png?v=088053ea)
 
 <p align="center">
