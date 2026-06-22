@@ -4,12 +4,12 @@
 </p>
 
 ![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image30.jpg?v=088053ea)
-
-![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image29.png?v=088053ea)
-
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=CAD7FF" />
 </p>
+
+![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image29.png?v=088053ea)
+
 <!--
 **Le0nK3nnedy/Le0nK3nnedy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
