@@ -2,7 +2,7 @@
   <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=7D8BB3" />
 </p>
 
-![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image27.png?v=637dc379)
+![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image25.png?v=637dc379)
 
 <!--
 **Le0nK3nnedy/Le0nK3nnedy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
