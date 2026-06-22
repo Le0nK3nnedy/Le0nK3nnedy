@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=7D8BB3)
 ![divider](https://san1m3.carrd.co/assets/images/image24.png?v=3fb0024e)
 ![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image23.png?v=1ea55a83)
 
