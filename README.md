@@ -5,7 +5,7 @@
 
 ![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image32.png?v=7f2c4715)
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=CAD7FF" />
+  <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=000000" />
 </p>
 
 ![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image34.png?v=7f2c4715)
