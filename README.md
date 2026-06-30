@@ -3,7 +3,7 @@
   𓉸ྀི
 </p>
 
-![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image38.gif?v=d427685a)
+![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image44.png?v=1e19a482)
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=000000" />
 </p>
