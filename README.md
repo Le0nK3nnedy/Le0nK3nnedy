@@ -1,14 +1,14 @@
-![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image48.png?v=61d4eabb)
+![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image01.png?v=0a1f2a34)
 <p align="center">
   𓉸ྀི
 </p>
 
-![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image44.png?v=1e19a482)
+![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image03.png?v=0a1f2a34)
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=000000" />
 </p>
 
-![Le0nK3nnedy](https://san1m3.carrd.co/assets/images/image47.png?v=61d4eabb)
+![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image02.png?v=0a1f2a34)
 
 <!--
 **Le0nK3nnedy/Le0nK3nnedy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
