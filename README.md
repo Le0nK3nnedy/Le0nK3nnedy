@@ -3,9 +3,9 @@
   𓉸ྀི
 </p>
 
-![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image07.png?v=6a872119)
+![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image10.png?v=ee2aba83)
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=000000" />
+  <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=617CA4" />
 </p>
 
 ![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image05.jpg?v=6a872119)
