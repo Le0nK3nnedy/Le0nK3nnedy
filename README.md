@@ -15,6 +15,10 @@ lᧉ𝗈𑄈  ƙᧉ𑄈𑄈ᧉᑯყ
 
 ![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image11.png?v=1ccfbc89)
 
+<p align="center">
+  <a href="https://www.tumblr.com/astr0v4l">Credit</a>
+  <a href="https://www.tumblr.com/mooniiecake">Credit</a>
+</p>
 
 ![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image12.png?v=2bb902bb)
 
