@@ -16,8 +16,7 @@ lᧉ𝗈𑄈  ƙᧉ𑄈𑄈ᧉᑯყ
 ![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image11.png?v=1ccfbc89)
 
 <p align="center">
-  <a href="https://www.tumblr.com/astr0v4l">Credit</a>
-  <a href="https://www.tumblr.com/mooniiecake">Credit</a>
+  <a href="https://www.tumblr.com/astr0v4l" style="background-color: #7D8BB3; color: white; padding: 10px 20px; border-radius: 8px; text-decoration: none;">cɾᧉᑯιƚ</a>&emsp;&emsp;<a href="https://www.tumblr.com/mooniiecake" style="background-color: #7D8BB3; color: white; padding: 10px 20px; border-radius: 8px; text-decoration: none;">cɾᧉᑯιƚ</a>
 </p>
 
 ![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image12.png?v=2bb902bb)
