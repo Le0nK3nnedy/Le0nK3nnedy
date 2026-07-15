@@ -3,7 +3,8 @@
 ⌣︵⌣⏜੭    ୧ֹ⏜⌣︵⌣
 </p>
 <p align="center">
-lᧉ𝗈𑄈  ƙᧉ𑄈𑄈ᧉᑯყ
+  ʝιოოყ   h𝗈ρƙιɳຣㅤ
+</p>
 </p>
 <p align="center">
 ㅤ
@@ -13,17 +14,17 @@ lᧉ𝗈𑄈  ƙᧉ𑄈𑄈ᧉᑯყ
 ✦ . 　⁺ 　. ✦ . 　⁺　 .  ✦  . 　⁺   . ✦ . 　 ⁺    ✦ 
 </p>
 
-![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image11.png?v=1ccfbc89)
+![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image13.png?v=78c53349)
 
 <p align="center">
-  <a href="https://www.tumblr.com/astr0v4l" style="background-color: #7D8BB3; color: white; padding: 10px 20px; border-radius: 8px; text-decoration: none;">cɾᧉᑯιƚ</a>&emsp;&emsp;<a href="https://www.tumblr.com/mooniiecake" style="background-color: #7D8BB3; color: white; padding: 10px 20px; border-radius: 8px; text-decoration: none;">cɾᧉᑯιƚ</a>
+  <a href="https://x.com/kunnuscumnus" style="background-color: #7D8BB3; color: white; padding: 10px 20px; border-radius: 8px; text-decoration: none;">cɾᧉᑯιƚ</a>
 </p>
-
-![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image12.png?v=2bb902bb)
+  
 
 <p align="center">
   ͝ ⏝ ͝ ⏝ ͝ ⏝  ⏝ ͝ ⏝ ͝ ⏝ ͝
 </p>
+
 <p align="center">
 ✦ . 　⁺ 　. ✦ . 　⁺　 .  ✦  . 　⁺   . ✦ . 　 ⁺    ✦ 
 </p>
