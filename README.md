@@ -14,7 +14,7 @@
 ✦ . 　⁺ 　. ✦ . 　⁺　 .  ✦  . 　⁺   . ✦ . 　 ⁺    ✦ 
 </p>
 
-![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image15.png?v=c639a7ca)
+![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image17.png?v=4a68d7c8)
 
 <p align="center">
   <a href="https://www.tumblr.com/necroangelz" style="background-color: #7D8BB3; color: white; padding: 10px 20px; border-radius: 8px; text-decoration: none;">cɾᧉᑯιƚ</a>
