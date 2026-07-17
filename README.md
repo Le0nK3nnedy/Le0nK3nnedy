@@ -17,8 +17,12 @@
 ![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image17.png?v=4a68d7c8)
 
 <p align="center">
-  <a href="https://www.tumblr.com/necroangelz" style="background-color: #7D8BB3; color: white; padding: 10px 20px; border-radius: 8px; text-decoration: none;">cɾᧉᑯιƚ</a>
+  <a href="https://www.tumblr.com/necroangelz">cɾᧉᑯιƚ</a> &emsp; 
+  <a href="https://m0rta1l.straw.page">ຣƚɾᥲ⍵</a> &emsp; 
+  <a href="https://s3ptember30th.atabook.org/">ᥲƚᥲ</a> &emsp; 
+  <a href="https://spacehey.com/UMBR3LLA">ຣρᥲcᧉ</a>
 </p>
+
   
 
 <p align="center">
