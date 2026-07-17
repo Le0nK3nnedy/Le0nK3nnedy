@@ -3,7 +3,7 @@
 ⌣︵⌣⏜੭    ୧ֹ⏜⌣︵⌣
 </p>
 <p align="center">
-  ʝιოოყ   h𝗈ρƙιɳຣㅤ
+  𝗈ო𝗈ɾι
 </p>
 </p>
 <p align="center">
