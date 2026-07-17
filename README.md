@@ -17,7 +17,7 @@
 ![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image18.png?v=bc88127a)
 
 <p align="center">
-  <a href="https://www.tumblr.com/necroangelz">cɾᧉᑯιƚ</a> &emsp; 
+  <a href="https://www.tumblr.com/lavendergalactic">cɾᧉᑯιƚ</a> &emsp; 
   <a href="https://m0rta1l.straw.page">ຣƚɾᥲ⍵</a> &emsp; 
   <a href="https://s3ptember30th.atabook.org/">ᥲƚᥲ</a> &emsp; 
   <a href="https://spacehey.com/UMBR3LLA">ຣρᥲcᧉ</a>
