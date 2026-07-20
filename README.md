@@ -36,7 +36,7 @@
 ![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image23.png?v=6a9769ab)
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=617CA4" />
+  <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=070707" />
 </p>
 
 <!--
