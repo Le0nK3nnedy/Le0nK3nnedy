@@ -1,4 +1,4 @@
-![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image05.jpg?v=6a872119)
+![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image23.png?v=6a9769ab)
 <p align="center">
 ⌣︵⌣⏜੭    ୧ֹ⏜⌣︵⌣
 </p>
@@ -14,7 +14,7 @@
 ✦ . 　⁺ 　. ✦ . 　⁺　 .  ✦  . 　⁺   . ✦ . 　 ⁺    ✦ 
 </p>
 
-![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image18.png?v=bc88127a)
+![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image25.png?v=6a9769ab)
 
 <p align="center">
   <a href="https://www.tumblr.com/lavendergalactic">cɾᧉᑯιƚ</a> &emsp; 
@@ -33,7 +33,7 @@
 ✦ . 　⁺ 　. ✦ . 　⁺　 .  ✦  . 　⁺   . ✦ . 　 ⁺    ✦ 
 </p>
 
-![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image05.jpg?v=6a872119)
+![Le0nK3nnedy](https://hismemorieslol.carrd.co/assets/images/image23.png?v=6a9769ab)
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=Le0nK3nnedy&label=watching&color=617CA4" />
